@@ -17,5 +17,6 @@ Riwayat Pendidikan Dari KEMENDIKBUD
 2009 Sd 2013 SMPN 1 Licin (Lulus )
 2013 Sd 2014 SMK 1 Ibrahimmy ( Pindah )
 2014 sd 2016 MA MIFTAHUL ARIFIN ( Lulus )
+2016 Sd 2017 Universitas Udayana ( Pindah )
 2018 sd 2020 Universitas BaliDwipa ( Lulus )
 
